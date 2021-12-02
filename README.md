@@ -1,1 +1,0 @@
-# hericanresort.github.io
